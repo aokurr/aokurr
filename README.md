@@ -14,7 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-- 📫 How to reach me **aokur41.ao@gmail.com**
+- 📫 How to reach me **41aokur41@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
